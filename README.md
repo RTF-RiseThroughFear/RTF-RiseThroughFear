@@ -31,7 +31,7 @@ He just had to stop asking permission to take it.
 You can't cage what's meant to fly.
 
 The scars that look like a basis for shame today
-will be the reason I am honoured tomorrow.
+will be the reason you are honoured tomorrow.
 
 Do not mistake my high spirits for lack of clarity.
 
